@@ -8,7 +8,10 @@ I'm Yin or u can just call me su!
 - yaaa! id love to know new things and id love it if u could introduce yourselvezz!
 
   ︵‿︵‿୨♡୧‿︵‿︵୧︵‿︵‿୨♡୧‿︵‿︵୧︵‿︵‿୨♡୧‿
-  
+
+
+<img width="923" height="726" alt="image" src="https://github.com/user-attachments/assets/a0fa9b65-5f69-45b7-bf56-c5eac529fbe2" />
+
 
 
 
