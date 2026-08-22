@@ -13,6 +13,9 @@ I'm Koi or you can just call me Mai ( i love being called any)!!!
 <img width="755" height="357" alt="image" src="https://github.com/user-attachments/assets/dab39095-fcd3-47ce-8e33-1da5224d36fe" />
 
 
+<img width="736" height="887" alt="image" src="https://github.com/user-attachments/assets/6b509770-8a2c-473e-9a2b-a0899465ebfc" />
+
+
 
 
 
