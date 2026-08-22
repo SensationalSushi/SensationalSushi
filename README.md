@@ -1,5 +1,5 @@
-HELLO, HELLO!!
-I'm Koi or u can just call me aku! 
+HAIAIAIA!!
+I'm Koi or you can just call me Mai ( i love being called any)!!!
 - i like to meet new people and to make everyone happy, since i find it really fun and amazingzz!!
 - i struggle with depression and severe acne so please be calm and gentle with me.
 - i lovelove horror games, i'd love it if u could give me any ideas of what to play! cuz i love finding new games to play and im very,very interested to know
