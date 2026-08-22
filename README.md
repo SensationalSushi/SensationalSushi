@@ -1,11 +1,11 @@
 HAIAIAIA!!
-I'm Koi or you can just call me Mai ( i love being called any)!!!
-- i like to meet new people and to make everyone happy, since i find it really fun and amazingzz!!
+I'm Koi or you can just call me Mai!
+- i like to meet new people and to make everyone happy, since i find it really fun and amazingz!
 - i struggle with depression and severe acne so please be calm and gentle with me.
 - i lovelove horror games, i'd love it if u could give me any ideas of what to play! cuz i love finding new games to play and im very,very interested to know
 - Yes, i mostly go by she/her but you can call me any ofc!
-- yesyes i have no sanity, cuzzzzz... IM CRAZYZYZY! hehe
-- yaaa! id love to know new things and id love it if u could introduce yourselvezz!
+- my pfp was from the mimic if u wanted to know!
+- yesyes i love the mimic
 
   ︵‿︵‿୨♡୧‿︵‿︵୧︵‿︵‿୨♡୧‿︵‿︵୧︵‿︵‿୨♡୧‿
 
