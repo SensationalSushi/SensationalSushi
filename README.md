@@ -4,8 +4,8 @@ I'm Koi or you can just call me Mai!
 - i struggle with depression and severe acne so please be calm and gentle with me.
 - i lovelove horror games, i'd love it if u could give me any ideas of what to play! cuz i love finding new games to play and im very,very interested to know
 - Yes, i mostly go by she/her but you can call me any ofc!
-- my pfp was from the mimic if u wanted to know!
-- yesyes i love the mimic
+- SKK FOREVER!!!
+
 
   ︵‿︵‿୨♡୧‿︵‿︵୧︵‿︵‿୨♡୧‿︵‿︵୧︵‿︵‿୨♡୧‿
 
