@@ -10,8 +10,6 @@ I'm Koi or you can just call me Mai!
   ︵‿︵‿୨♡୧‿︵‿︵୧︵‿︵‿୨♡୧‿︵‿︵୧︵‿︵‿୨♡୧‿
 
 
-<img width="2048" height="1082" alt="image" src="https://github.com/user-attachments/assets/bb8f5e8d-5440-48eb-9ce3-a2026b00e1a8" />
-
 
 
 
